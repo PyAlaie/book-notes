@@ -260,4 +260,34 @@ be noticed.”
 
 ### 11. Do Not Bother Children When They Are Skateboarding
 
+- If you think tough men are dangerous, wait until you see what weak men are capable of. (A harmless man is not a good man. A good man is a very dangerous man who has it under control)
+
 ### 12. Pet A Cat When You Encounter One On the Street
+
+- The idea that life is suffering is a tenet, in one form or another, of every major religious
+doctrine, as we have already discussed. Buddhists state it directly. Christians illustrate it with
+the cross. Jews commemorate the suffering endured over centuries. Such reasoning universally
+characterizes the great creeds, because human beings are intrinsically fragile. We can be
+damaged, even broken, emotionally and physically, and we are all subject to the depredations of
+aging and loss. This is a dismal set of facts, and it is reasonable to wonder how we can expect to
+thrive and be happy (or even to want to exist, sometimes) under such conditions.
+
+- What can be truly loved about a person is inseparable from their limitations... Since I loved him (writer's son) a lot, I decided that he was all right the way he was, despite his fragility.
+
+- Being of any reasonable sort appears to require limitation.
+
+- Hating life, despising life—even for the genuine pain
+that life inflicts—merely serves to make life itself worse, unbearably worse. There is no genuine
+protest in that. There is no goodness in that, only the desire to produce suffering, for the sake of
+suffering. That is the very essence of evil.
+
+- When existence reveals
+itself as existentially intolerable, thinking collapses in on itself. In such situations—in the
+depths—it’s noticing, not thinking, that does the trick. Perhaps you might start by noticing this:
+when you love someone, it’s not despite their limitations. It’s because of their limitations. Of
+course, it’s complicated. You don’t have to be in love with every shortcoming, and merely
+accept. You shouldn’t stop trying to make life better, or let suffering just be. But there appear to
+be limits on the path to improvement beyond which we might not want to go, lest we sacrifice
+our humanity itself.
+
+- The final moral of this chapter: Be grateful, despite your suffering.
